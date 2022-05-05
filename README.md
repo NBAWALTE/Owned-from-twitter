@@ -9,3 +9,13 @@ Person that i owned...
 @Alinity
 @ChuckECheese
 @peta
+@Minecraft
+@mrmonopoly
+@SantaDecides
+@gimkit
+@Cheesecake
+@knotts
+@quizizz
+@CallMeCarsonYT
+@quizlet
+@DisneyJunior
