@@ -19,3 +19,8 @@ Person that i owned...
 @CallMeCarsonYT
 @quizlet
 @DisneyJunior
+@WholesomeMeme
+@BunBelleDolphin
+@peppapig
+@weirdrealitymp4
+@ThatFoxoCalon
